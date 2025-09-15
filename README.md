@@ -1,2 +1,2 @@
 # semana-tec
-actividades maravillosas del profe
+actividades maravillosas del profe, que nunca olvidare
